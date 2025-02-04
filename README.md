@@ -1,1 +1,6 @@
-# katarzynalaskowska.github.io
+# Analityk Danych
+
+### Doświadczenie zawodowe
+
+### Wykształcenie
+
